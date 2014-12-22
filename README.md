@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE ANSVVERE OF Mr. RICHARD HOOKER TO A SVPPLICATION PREFERRED by Mr WALTER TRAVERS to the H H. Lord
+
 #####Body#####
 
 1. Mr HOOKERS ANSVVER to the Supplication that Mr Travers made to the Counsell.
